@@ -1,0 +1,1 @@
+# Test DestinoIT condiviso con adri
